@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with programming techniques.
 - 💬 Ask me about ...
 - 📫 How to reach me: xue.ding@uqconnect.edu.au
-- 😄 Pronouns: Eira
+- 😄 Pronouns: Esther
 - ⚡ Fun fact: My undergraduate major is biotechnology, but now I'm an IT master student.
