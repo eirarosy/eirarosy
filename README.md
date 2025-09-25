@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on web 3.0.
 - 🤔 I’m looking for help with programming techniques.
 - 💬 Ask me about ...
-- 📫 How to reach me: xue.ding@uqconnect.edu.au
+- 📫 How to reach me: estherding@proton.me
 - 😄 Pronouns: Esther
 - ⚡ Fun fact: My undergraduate major is biotechnology, but now I'm an IT master student.
